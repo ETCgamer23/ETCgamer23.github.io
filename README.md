@@ -1,3 +1,5 @@
-I have thirty thousand pounds in credit card debt, if they call I tell them I can’t pay it back yet, credit card debt\! I might buy myself this dining room set or this bobofet, credit card debt\! credit card debt\! credit card debt\!
+hello
 
-ETCgamer23 was here… 
+This is my website
+
+Enjoy!
